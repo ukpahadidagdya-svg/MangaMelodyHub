@@ -1,2 +1,0 @@
-# MangaMelodyHub
-AnimeExplanation
